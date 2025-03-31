@@ -1,2 +1,3 @@
 gyhgsfcsfgcfvhidcfvia
 zminaaanannnaanna
+ zmiana2 
